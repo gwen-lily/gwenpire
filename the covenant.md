@@ -17,7 +17,7 @@ Cammraderie! Friendship! All genders are welcome, gender is a fuck! as they say.
 Freedom to explore oneself! Whatever strange and wonderful corner of the ND & NB sphere you fall into, you are welcome to express & live it.
 
 ## Polygamy
-gwen is a hyperpolygamous bunny slut! All are welcome to be as exclusive or 
+gwen is a hyperpolygamous bunny slut! All are welcome to be as exclusive or not as they want! Shoutout to sluts, we make the world go round. On that note, know your sexual history and risks. Do not expose other gwen friends to danger! And ask that they show you the same courtesy :3
 
 ## Privacy
 Everybody deserves a place of their own, at any time as needed! The more the merrier in general, but when assigning living spaces, make sure that people can get some time to themselves as needed
