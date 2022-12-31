@@ -1,4 +1,6 @@
-2022-12-31
+# the covenant
+## gwen
+### 2022-12-31
 
 I convene the parliament of gwen! ababa! that's something cute to call it, so the parliament of gwen, it shall be in git! On the hub, as it were. So, let's establish a covenant like witches! or communes! Let's lay down a few ground rules that set the vibe!
 
